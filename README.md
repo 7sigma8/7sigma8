@@ -1,5 +1,5 @@
 -  Hi, WE ARE 7sigma8
--  We're interested in creating community driven projects based on ideas from the 7SIGMA8 foundation and it memebers
+-  We're interested in creating community driven projects based on ideas from the 7SIGMA8 foundation and it's memebers
 -  The 7sigam8 foundation provides networking for and with people from all across the globe with many skill sets some of which are still undiscovered
 -  We promote self discovery, provide assistance, advice, wisdom and knowledge
 -  We are looking for new members and collaborators to assist us in achieving our goals of Improving Life for all of humanity and Assisting in the fight against our persecuted brothers and sisters.
